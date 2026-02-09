@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-MECM870323MSPNSR01
+MECM870323MSPNSR01
